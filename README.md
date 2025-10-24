@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SurajSingh2587
-- 👀 I’m interested in Codeing
+- 👀 I’m interested in Coding
 - 🌱 I’m currently learning python
 - 📫 How to reach me: email: dk122685@gmail.com
 - 😄 Pronouns: Suraj
